@@ -1,4 +1,4 @@
-!! this is just whatever i have that i wanna give out !!
+!! this is just whatever video game stuff i have that i wanna give out !!
 
 TTRDJ are some themes i have for tap tap revenge 3/4, an old iphone game that got removed in 2014
 
