@@ -7,5 +7,5 @@ https://www.mediafire.com/file/q0kaumxs2000qd9/OpenSSK.zip/file OPENSSK, a super
 https://www.mediafire.com/file/j6kyapr0rz3v7oi/Dumped.zip/file this is whatever apps i have on my idevice such as:
 puffle launch & many disney games
 tap tap revenge series games
-old angry birds
+old angry birds games
 etc
